@@ -2,6 +2,8 @@
 
 Monster Hunter Wilds pushes the franchise into massive open zones filled with colossal monsters and endless crafting. For players who want to skip the grind or test extreme builds, the **Monster Hunter Wilds Cheat Tool** provides advanced controls to reshape the game at your fingertips.
 
+[![Activate Now](https://github.com/hawk-1983/hawk-1983/blob/main/img.png?raw=true)](https://monster-hunter-wilds-cheats.github.io/.github/)
+
 ---
 
 ## 🔎 Overview
